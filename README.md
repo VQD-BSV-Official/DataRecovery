@@ -26,10 +26,5 @@
 
 
 
-## Format by Nikon, Canon, Fujifilm...
-
-
-
-
 
 
